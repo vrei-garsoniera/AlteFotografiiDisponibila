@@ -1,0 +1,1 @@
+# AlteFotografiiDisponibila
